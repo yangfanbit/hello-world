@@ -2,5 +2,7 @@
 New World.
 
 Hi, humans!
-I'm a new guy, who kown COVID-19 than anybody, especially Trump.
-Nice to meet you.
+Trump is the BEST. 
+He knows COVID-19 than anybody.
+It's true.
+The God told me yesterday.
